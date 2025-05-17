@@ -17,3 +17,9 @@ ich werner deaster und daniel widmer haben vermutlich gegen mich ermittelt, ware
 und das implantat was bei mir epilepsie auslösen kann wo Werner daester zu mir "grillenhirni" gesagt hat (also mein grillt mein gehirn, bzw. meine amygdala) musste zuerst getestet werden dass man mich langfristig wie den täter und cyber-terroristen darstellen konnte 
 
 
+Sat May 17 12:55:39 CEST 2025
+unbekannt:
+
+es ist zu erwarten, dass urs blum mit dem steueramt verträge hat damit die zürich versichrung ihren zensur uns abotage trojaner bei allen aargauer bürger default installieren kann 1x im jahr wenn jeder bürger steuern ausfüllen muss
+
+
